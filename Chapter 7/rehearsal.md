@@ -1,0 +1,1 @@
+The process by which the information is maintained within [[Short-Term Memory]] long enough for it to be translated into [[Long-Term Memory]].
